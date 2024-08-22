@@ -1,6 +1,6 @@
 Say goodbye to those pesky skin tags that are bothering you or affecting your appearance! The [Youthful Dermlogix Skin Tag Solution](https://www.facebook.com/youthfuldermlogixskintagsolution) offers a safe and effective solution. Using a gentle yet powerful technology, this treatment removes skin tags without causing pain. With Youthful Dermlogix, you can enjoy smooth, beautiful skin without the hassle.
 
-● Product Name — Youthful Dermlogix Skin Tag Solution:
+● Product Name — Youthful Dermlogix Skin Tag Solution
 
 ● Main Benefits — Skin Tag Remover
 
